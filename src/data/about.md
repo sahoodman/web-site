@@ -57,7 +57,7 @@ You can ask me in person for other stories that I'm afraid to share with the int
 
 # Travel / Geography
 
-- I am from originally from Odisha, India. I have since lived in
+- I am from originally from India. I have since lived in
 Rourkela, Hyderabad, Pune, and Mumbai.
 
 - I've been to ~ 50 cities, some of which I have forgotten, and many of which I would like to revisit.
