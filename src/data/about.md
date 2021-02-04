@@ -58,19 +58,19 @@ You can ask me in person for other stories that I'm afraid to share with the int
 # Travel / Geography
 
 - I am from originally from India. I have since lived in
-Rourkela, Hyderabad, Pune, and Mumbai.
+Chandigarh, Rourkela, Hyderabad, Pune, Gurgaon and Mumbai.
 
 - I've been to ~ 50 cities, some of which I have forgotten, and many of which I would like to revisit.
 
 - In 2016, I visited: Puri, Sambalpur, Bhubaneswar, Rourkela, Ludhiana, Amritsar.
 
-- In 2017, I visited: Punjab, Kolkata.
+- In 2017, I visited: Pube, Mumbai, Chennai, Punjab, Kolkata.
 
 - In 2018, I visited: Kharagpur, Digha, Nainital, Delhi, Hyderbad.
 
 - In 2019, I visited: Ooty, Banagalore, Chennai, and Coimbatore.
 
-- In 2020, I stayed in Bhubaneswar.
+- In 2020, I stayed in Hyderabd.
 
 - I am a Trekking enthusiast.
 
